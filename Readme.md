@@ -2,7 +2,7 @@
 
 Projects are added frequently! ⚡
 
-Enjoy!
+Have fun! 
 
 If you like this repo, be sure to ⭐ it.
 
